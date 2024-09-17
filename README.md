@@ -142,7 +142,7 @@
 
 <div align='center'>
 
-## <b>السَّلاَمُ عَلَيْكُمْ وَرَحْمَةُ اللهِ وَبَرَكَاتُهُ...✨</b>
+## <b>Las cosas tardan pero llegan...✨</b>
 
 </div>
 <br>
